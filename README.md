@@ -1,1 +1,1 @@
-Please do not open!!!!!!!! THIS COULD RESET YOUR LEVELS, SKINS, CHARACTERS, GUNS, GUN SKINS, AND COULD BE BANNED BY THE ANTICHEAT. [NO UNBANS]![furry-die-furry](https://user-images.githubusercontent.com/105955138/169628930-4b8aac78-291e-4d7a-a03b-5522534879f4.gif)
+Fixed the beta from reseting your account in the new Tubes![tube-fish](https://user-images.githubusercontent.com/79668163/169629009-5ed054e4-a3d4-4647-90b2-425c6aa24116.gif)
