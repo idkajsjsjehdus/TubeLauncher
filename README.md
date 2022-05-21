@@ -1,2 +1,1 @@
-Please do not open!!!!!!!! THIS COULD RESET YOUR LEVELS, SKINS, CHARACTERS, GUNS, GUN SKINS, AND COULD BE BANNED BY THE ANTICHEAT. [NO UNBANS]
-https://tenor.com/view/furry-die-furry-furry-hug-furry-meme-gif-23353456
+Please do not open!!!!!!!! THIS COULD RESET YOUR LEVELS, SKINS, CHARACTERS, GUNS, GUN SKINS, AND COULD BE BANNED BY THE ANTICHEAT. [NO UNBANS]![furry-die-furry](https://user-images.githubusercontent.com/105955138/169628930-4b8aac78-291e-4d7a-a03b-5522534879f4.gif)
